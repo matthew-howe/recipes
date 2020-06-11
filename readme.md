@@ -8,7 +8,7 @@ https://cookieandkate.com/mango-burrito-bowls-with-crispy-tofu/ (+salmon)
 https://cookieandkate.com/vegetable-fried-rice-recipe/ (+chicken)
 
 ## Creole
-https://cooking.nytimes.com/recipes/1020816-vegan-slow-cooker-red-beans-and-rice (+saussage)
+https://cooking.nytimes.com/recipes/1020816-vegan-slow-cooker-red-beans-and-rice (+sausage)
   
 
 ## Currently cooking
