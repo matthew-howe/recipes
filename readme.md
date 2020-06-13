@@ -1,3 +1,8 @@
+## Soups
+https://thefirstmess.com/2012/01/16/favourite-lentil-soup/
+
+https://thefirstmess.com/2018/01/03/creamy-white-bean-soup-vegan-recipe/
+
 ## Salads
 https://www.ambitiouskitchen.com/vegan-curried-broccoli-chickpea-salad/ (tahini->yogurt) 
   
