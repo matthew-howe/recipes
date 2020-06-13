@@ -14,8 +14,13 @@ https://cookieandkate.com/vegetable-fried-rice-recipe/ (+chicken)
 
 ## Creole
 https://cooking.nytimes.com/recipes/1020816-vegan-slow-cooker-red-beans-and-rice (+sausage)
+
+## American Fusion
+https://thefirstmess.com/2020/03/04/avocado-pesto-pasta-with-crispy-kale-vegan-recipe/
   
 
 ## Currently cooking
+https://i.imgur.com/WuYez6J.jpg
+
   
-https://thefirstmess.com/2020/03/04/avocado-pesto-pasta-with-crispy-kale-vegan-recipe/
+
